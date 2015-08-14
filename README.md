@@ -1,0 +1,2 @@
+# bjartemisund.no
+bjartemisund.no
